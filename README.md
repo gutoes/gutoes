@@ -9,7 +9,7 @@
  -Utilizo esse espaço para minha organizaçao e compartilhamento dos meus projetos desenvolvidos 
 
  ### Voce entrar em contato comigo
- augus9190@gmail.com
+ o
 
  ![](https://media1.tenor.com/m/VGnIKs24lbIAAAAC/bryan-gif.gif)
  
